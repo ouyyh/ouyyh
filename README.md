@@ -2,5 +2,13 @@ eyJhbGciOiJSUzI1NiIsImtpZCI6Inh2UGFKXzhMcHdISTRYZzAxR2lvaFdxbjNRaXc2MWQ4dXN3SmxB
 
 
 ptdplatformsit.uatctflife.com.hk/home
+pdadm0116@cn.ey.com
 
-mailto:pdadm0116@cn.ey.com
+
+
+
+
+
+
+ptdplatform.uatctflife.com.hk/home
+pdadm@dynastygroup.com.hk
